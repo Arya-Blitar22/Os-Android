@@ -1,3 +1,3 @@
 ````
-minal Aidzin Walfaidzin Sayank..
+Kangen jandamu
 ````
